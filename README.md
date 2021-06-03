@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @robysandoval
+- 👀 I’m interested in games
+- 🌱 I’m currently learning nothing atm
+- 💞️ I’m looking to collaborate on nothing atm
